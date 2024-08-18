@@ -1,9 +1,9 @@
 #### - rockets are able to land on autonomous spaceports and you are bearish on mankind? 
-#### - man made marvel beyond our comprehension..things you fight wars over..the alpha and omega, the beginning of chip 
+#### - man made marvel beyond our comprehension..things you fight wars over..the alpha and omega, the genesis of a new era
 
 ![GSEqqr6bgAAVBJp](https://github.com/user-attachments/assets/db3d6f9d-7a95-4181-8d7e-2d73b69df778)
 
-Machine god be praised!! What a beautiful creation of steel. A new peak to humanity's understanding of engineering. May the spirit of that great machine be proud of its creators and be moat honored in its task to being humanity to the stars!!
+Behold this triumph of human ingenuity! What a beautiful creation of steel. A new peak to humanity's understanding of engineering. May the spirit of that great machine be proud of its creators and be moat honored in its task to bringing humanity to the stars!! Through its circuits and algorithms, may we chart a course to the stars, forever pushing the boundaries of what's possible.
 
 # We aim towards forging the unimaginable
 
