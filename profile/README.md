@@ -1,9 +1,7 @@
 #### - rockets are able to land on autonomous spaceports and you are bearish on mankind? 
 #### - man made marvel beyond our comprehension..things you fight wars over..the alpha and omega, the genesis of a new era
 
-![optimus](https://github.com/user-attachments/assets/54d53b8b-303d-469d-b661-28553f518e1c)
 
-> ^^ ***(bee/optimus)*** photo credit ***Tesla.com***
 
 <!-- 
 ![GSEqqr6bgAAVBJp](https://github.com/user-attachments/assets/db3d6f9d-7a95-4181-8d7e-2d73b69df778)
